@@ -17,3 +17,6 @@
 We offer services successfully to long distance individuals who need help.
 WHATSAPP +2779928582
 healingtbjspiritual@gmail.com
+https://tbjlovespells.blogspot.com/
+https://sites.google.com/view/astrologer-psychic/home
+https://www.dibiz.com/healingtbjspiritual
