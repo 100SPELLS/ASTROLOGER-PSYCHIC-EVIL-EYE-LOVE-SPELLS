@@ -15,7 +15,7 @@
 16- Get a PROMOTION and SALARY INCREASE
 17- Destroy court cases
 We offer services successfully to long distance individuals who need help.
-WHATSAPP +2779928582
+WHATSAPP +27631787089
 healingtbjspiritual@gmail.com
 https://tbjlovespells.blogspot.com/
 https://sites.google.com/view/astrologer-psychic/home
