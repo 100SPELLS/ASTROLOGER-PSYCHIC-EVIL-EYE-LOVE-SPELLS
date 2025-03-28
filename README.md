@@ -1,3 +1,4 @@
+cosmology, Palmistry, Love Psychic Readings, Black Magic Removal , Negative Energy Removal and Evil Spirit Removal ,chase away evil spirits, win court cases, promotions and protections, voodoo spells .Business attraction, EMAIL ; healingtbjspiritual@gmail.com WhatsApp +27631787089
 1- Clear Debts, Positive Money flow, Lottery Wins
 2- Business problems and taking off your competitors
 3-Stop cheating partners
