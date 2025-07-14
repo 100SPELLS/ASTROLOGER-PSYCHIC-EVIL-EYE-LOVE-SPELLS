@@ -1,11 +1,11 @@
-cosmology, Palmistry, Love Psychic Readings, Black Magic Removal , Negative Energy Removal and Evil Spirit Removal ,chase away evil spirits, win court cases, promotions and protections, voodoo spells .Business attraction, EMAIL ; healingtbjspiritual@gmail.com WhatsApp +27631787089
-1- Clear Debts, Positive Money flow, Lottery Wins
+cosmology +27631787089, Palmistry +27631787089, Love Psychic Readings +27631787089, Black Magic Removal +27631787089, Negative Energy Removal +27631787089 and Evil Spirit Removal +27631787089,chase away evil spirits +27631787089, win court cases +27631787089, promotions and protections +27631787089, voodoo spells +27631787089 .Business attraction, EMAIL ; healingtbjspiritual@gmail.com WhatsApp +27631787089
+1- Clear Debts, Positive Money flow +27631787089, Lottery Wins +27631787089
 2- Business problems and taking off your competitors
 3-Stop cheating partners +27631787089
 4- Help to get your provident funds quickly +27631787089
 5-Bind him/her forever +27631787089
 6-Rituals Cleansing +27631787089 
-7-Child bearing problems +27631787089
+7-Child bearing problems +27631787089 https://filmfreeway.com/tbjspiritualhealing
 8- Bring back lost lover (in 12hours)
 9-Property binding +27631787089
 10-Defeat your enemies or competitors +27631787089
